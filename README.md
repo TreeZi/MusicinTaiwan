@@ -9,7 +9,7 @@
 
 1. [MC HotDog 熱狗](https://www.youtube.com/channel/UCW3Q3F5SByAWsYtRRFIMuNA)
 2. [大淵]()
-3. [頑童小春]
+3. [小春]
 4. [瘦子]()
 5. [張震嶽](https://www.youtube.com/channel/UCiQZhrWSEiWdoHwPJgAon4A)
 6. ？？？
@@ -18,7 +18,7 @@
 
 1. [Fly Out]
 2. [兄弟本色G.U.T.S](https://www.youtube.com/channel/UCvd7bOZaacDi6Uj7ujNH4jg)
-3. 頑童
+3. 頑童     `小春、大淵、瘦子是頑童的成員`
 
 ### 公司
 1. [滾石唱片]
