@@ -15,16 +15,15 @@
 3. [小春]()
 4. [瘦子]()
 5. [張震嶽](https://www.youtube.com/channel/UCiQZhrWSEiWdoHwPJgAon4A)
-6. ？？？
 
 ### Team
 
-1. [Fly Out]
+1. [Fly Out]()
 2. [兄弟本色G.U.T.S](https://www.youtube.com/channel/UCvd7bOZaacDi6Uj7ujNH4jg)
-3. 頑童     `小春、大淵、瘦子是頑童的成員`
+3. [頑童]()     `小春、大淵、瘦子是頑童的成員`
 
 ### 公司
-1. [滾石唱片]
+1. [滾石唱片]()
 
 ## 人人有功練
 
